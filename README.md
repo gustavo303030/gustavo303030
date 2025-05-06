@@ -1,4 +1,4 @@
-- 👋 óla ou o gustavo andrade alves
+- 👋 óla ou so gustavo andrade alves
 - 👀 tenho curso de tecnologia
 - 🌱 sou estudante do colégio vila industrial
 - 💞️ A minha habilidade e aprender rapido as coisa
